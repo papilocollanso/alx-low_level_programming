@@ -1,1 +1,0 @@
-Omo E choke
